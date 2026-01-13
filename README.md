@@ -1,0 +1,1 @@
+# Concept-of-a-transparent-governance-system-formed-in-dialogue-between-human-and-AI
